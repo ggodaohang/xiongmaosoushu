@@ -2,7 +2,7 @@
 <p><strong>网站介绍</strong><br>熊猫搜书是一个专注于电子书资源聚合的导航平台，汇集了超过20个主流电子书网站，如鸠摩搜书、久久小说等，为用户提供全面的电子书搜索和导航服务。其界面设计简洁清新，操作便捷，用户可以轻松切换不同的电子书网站进行浏览和下载。此外，熊猫搜书还支持多种格式的电子书下载，包括mobi、epub、pdf、txt等，甚至支持Kindle电子书格式。</p>
 <h2>熊猫搜书官网，免费电子书搜索引擎|多站点资源聚合平台</h2>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/3403.html " target="_blank"><strong>熊猫搜书最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点</strong></p>
 <ol>
